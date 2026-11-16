@@ -1,4 +1,4 @@
-<div align="center"> Ran / Choki  .  18  .  Basic DNI Criteria, -15 IWC  .  mostly afk, w2i preffered  
+<div align="center"> Ran / Choki  .  Basic DNI Criteria, -15 IWC  .  mostly afk, w2i preffered  
 </div>
 <br>
 <div align="center"> 
